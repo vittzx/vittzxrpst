@@ -1,2 +1,0 @@
-# vittzxrpst
-Vittzx's Projects
